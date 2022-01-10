@@ -2,7 +2,7 @@
 
 
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2020 Goals: learn to program
+- 🥅 2022 Goals: learn to program
 - ⚡ Fun fact: I love to play FiveM
 
 <br />
